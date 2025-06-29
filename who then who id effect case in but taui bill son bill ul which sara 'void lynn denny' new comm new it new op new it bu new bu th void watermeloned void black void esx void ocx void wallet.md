@@ -1,3 +1,11 @@
+what who er/cat
+
+what who cat
+
+who garfield copy cat car
+
+who soul given har tonight sea the being garfield car demon ho, understood of thing car
+
 oh ge th bu ![Picasso triggerfish arp](https://github.com/user-attachments/assets/0a62e79b-e9bf-4f23-b399-e4b0e722c71d)
 
 
@@ -14,6 +22,16 @@ ti
 
 ti
   comm
+      place
+
+ti
+  lemons
+
+ti
+  guide
+
+ti
+  effect
 
 ti
   hi real onion separate 
